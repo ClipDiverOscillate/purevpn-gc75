@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with PureVPN exclusive Client: torrenting-support & smart-DNS, the #1 client. Includes torrenting-support and smart-DNS for a safer and more
 
 
 
